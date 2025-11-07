@@ -1,0 +1,2 @@
+Allianz SE, facing a commoditized German motor-insurance market and rising claims costs (+46% indemnity increase 2021-24) McKinsey & Company launched an end-to-end transformation with McKinsey & Company. 
+The initiative revamped its value chain, introduced a multi-brand strategy, built an omnichannel model, leveraged process-mining and analytics, and doubled market growth while maintaining profitability by 2024
